@@ -6,3 +6,6 @@ csansa a
 csnb csnnsan
 csa
 nxsbnbnsa
+kncc
+kmscsckmmc
+nCNNNNK
